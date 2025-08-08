@@ -32,9 +32,9 @@
 
 Manish Yadav – https://www.linkedin.com/in/manishyadav0707/
 Open to feedback and collaboration!
+<img width="1287" height="742" alt="Amazon 1" src="https://github.com/user-attachments/assets/9144c211-f0c7-44e8-ae77-542584c15456" />
+<img width="1290" height="733" alt="amazon 2" src="https://github.com/user-attachments/assets/b5f4e6fc-4760-412e-b0bc-cd35eda46c18" />
+<img width="1321" height="735" alt="amazon 3" src="https://github.com/user-attachments/assets/772aefc4-d7fe-4c41-a2e9-909db2a99109" />
 
-<img width="1321" height="735" alt="amazon 3" src="https://github.com/user-attachments/assets/2664dd63-19cd-478b-9a1a-8ded30d1d22d" />
-<img width="1290" height="733" alt="amazon 2" src="https://github.com/user-attachments/assets/e3a3f27d-0190-4996-9a3b-eb7f447d1c2d" />
-<img width="1287" height="742" alt="Amazon 1" src="https://github.com/user-attachments/assets/1836f494-3fae-4554-a5cb-a5553ea5af6b" />
 
 
